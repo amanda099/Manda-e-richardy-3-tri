@@ -1,0 +1,1 @@
+# Manda-e-richardy-3-tri
